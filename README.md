@@ -16,7 +16,7 @@
 因此，不推荐大家购买国内团队运营的VPN品牌。原因在于它们可能会因财务问题或其他原因突然关闭，而国外运营团队VPN品牌则没有这些问题。
 
 国外VPN不受中国法律约束，并且大多提供至少30天的退款保证，即便无法在中国使用，也能轻松获得退款，因此可以无风险试用。
-![1](https://uf.cari.com.my/forumx/cforum/forum/202405/19/190129tyim7k2mzig3kg3i.png.thumb.jpg)
+![1](https://www.cnvintage.org/assets/files/2024-05-19/1716120337-996826-featured-image-best-vpns-for-china-zh-hanz.png)
 
 ## 推荐的中国VPN排行
 以下是我们根据实际使用体验，推荐的几款好用的VPN，排名不分先后：
