@@ -96,7 +96,7 @@ LightWay协议：自研协议，伪装性强，使用体验佳
 
 以下是每款VPN的稳定性、客户端软件、服务器节点、性价比和安全性测评，以及如何下载、安装、购买注册和使用的教程。
 
-#### DOVE VPN：强烈推荐的VPN品牌，心目中的top1:[点击进入官网，注册试用](https://tgjkdjfk.top/a.php?asbcbO1PCgF)
+#### DOVE VPN：强烈推荐的VPN品牌，心目中的top1：[点击进入官网，注册试用](https://tgjkdjfk.top/a.php?asbcbO1PCgF)
 
 NordVPN：最稳定性价比最高的VPN，推荐购买前无风险试用。
 
